@@ -35,8 +35,8 @@ Check out my repositories for coursework, personal projects, and experiments in 
 
 ## 📫 How to reach me
 
-- [LinkedIn](#) (add your LinkedIn here)
-- Email: (add your email here)
+- [LinkedIn](#) (www.linkedin.com/in/dhananjana-mallawaarachchi)
+- Email: (dhananjananadeekumari@gmail.com)
 
 ---
 
